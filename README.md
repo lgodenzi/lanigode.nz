@@ -1,3 +1,1 @@
-Readme test for lanigode.nz
-
-readme test two
+Site currently uder construction. Check back soon!
