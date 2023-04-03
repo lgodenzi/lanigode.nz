@@ -1,1 +1,0 @@
-Site currently uder construction. Check back soon!
